@@ -1,0 +1,1 @@
+# -sZekasi-VeriAnalitigi
